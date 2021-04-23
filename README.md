@@ -1,0 +1,1 @@
+# Hazi_feladat_minimal_frontpage_pozitioning
